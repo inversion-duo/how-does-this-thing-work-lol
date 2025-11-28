@@ -1,2 +1,4 @@
-# how-does-this-thing-work-lol
-??
+i have no idea of how this thing workss but hi im voosfy, please int! im trying to get as many uu/ls oomfs, currently 0/20 llolz...
+please interact...
+im cool i sweear.. 16+ please dni im 13..
+![Yj1Bc7ER_400x400](https://github.com/user-attachments/assets/32793cd9-23a0-470b-874d-c11e43938d2e)
