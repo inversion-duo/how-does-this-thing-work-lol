@@ -2,5 +2,5 @@ i have no idea of how this thing workss but hi im voosfy, please int! im trying 
 please interact...
 im cool i sweear.. 16+ please dni im 13..
 idm c*h at all actually i love it!11!! idc what fandom youre in go ahead :3
-![Yj1Bc7ER_400x400](https://github.com/user-attachments/assets/32793cd9-23a0-470b-874d-c11e43938d2e)
+![Yj1Bc7ER_400x400]((https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSHdPRZBPPRXHEt9h5sSdepwdTjkYUO4Y9LFQ&s))
 ily spadeyy /p
